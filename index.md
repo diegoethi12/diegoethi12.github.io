@@ -1,2 +1,0 @@
-# Diego's page
-
